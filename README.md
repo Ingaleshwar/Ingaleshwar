@@ -2,7 +2,7 @@
 - 👀 I’m interested in cooking,trekking,reading and learning.
 - 🌱 I’m currently learning Engineering
 - 💞️ I’m looking to collaborate on linkedin, X
-- 📫 How to reach me rohithingaleshwar.14@gmail.com
+- 📫 How to reach me rohithingaleshwar.1si21ec078@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Hot Water Freezes Faster Than Cold Water.
 
